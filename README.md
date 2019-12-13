@@ -6,6 +6,8 @@ https://www.meetup.com/ka-bcg/
 
 Below are past events in Karlsruhe China-Germany Business & Culture Group Meetup:
 
+12/12/2019 18:30 [Roundtable] Phrase and sayings | Mr. Yu Li | Organizer of KA-BCG
+
 22/07/2019 18:30 [Vortrag] Lin Yutang - Wie ein Autor den Humor und die Schreibmaschine erfand | Herr Robert Lauer | Software Entwickler
 
 05/06/2019 18:30 [Presentation] Business in China | Herr Bernhard Weber | General Manager, Baden-Württemberg International - Nanjing, Chief Representative of the State of Baden-Württemberg in China 
